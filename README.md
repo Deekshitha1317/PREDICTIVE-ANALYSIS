@@ -20,6 +20,18 @@ objective:this task focuses on performing predictive analysis using machine lear
 
 ![Image](https://github.com/user-attachments/assets/875d1634-f137-4d91-8adc-ae948aa6f762)
 
+![Image](https://github.com/user-attachments/assets/50a647dc-79a6-4257-8c7c-45d99138c830)
+
+![Image](https://github.com/user-attachments/assets/cbcaa3f3-b13e-4951-8848-b10c692cff7e)
+
+![Image](https://github.com/user-attachments/assets/782b13df-1655-4763-9d57-f221b738069e)
+
+![Image](https://github.com/user-attachments/assets/1a0b725d-547f-42e2-a814-085d110ea055)
+
+![Image](https://github.com/user-attachments/assets/82c659bb-afdd-49c7-914f-25d3e6957f44)
+
+![Image](https://github.com/user-attachments/assets/cd991dbe-f022-464a-b40e-71163e62dd5a)
+
 
 
 
